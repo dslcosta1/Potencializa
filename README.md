@@ -12,10 +12,21 @@ O Potencializa é um programa de potencialização individual e coletiva para jo
 
 Entre Abril e Maio de 2021 o projeto Oficina de Aprendizes realizou seu MVP com aulas online semanais. Eu participei da elaboração do conteúdo das aulas e no suporte técnico das palestras:
 
-Aula 10/04 - Focada em empregabilidade e planos para o futuro. Foi apresentado os desafios internos e externos para os jovens entrar no mercado de trabalho. Foi a apresentação do projeto para os jovens e chamado para as próximas formações:
+**Aula 10/04** - Focada em empregabilidade e planos para o futuro. Foi apresentado os desafios internos e externos para os jovens entrar no mercado de trabalho. Foi a apresentação do projeto para os jovens e chamado para as próximas formações:
 
 Gravação da aula:
+
 https://drive.google.com/file/d/18TYCZsF-Hs5Tlen0bj-RFTlGhiz2YiJL/view?usp=sharing
+
+Formulário de Feedback:
+https://forms.gle/kVGa4tjGzBXXYBEGA
+
+**Aula 17/04** - Oficina sobre autoconhecimento - conversamos com os jovens sobre sonhos e futuro, com um olhar voltado para dentro. Foi uma aula onde os alunos tentaram perceber o que eles gostam de fazer, em que eles são bons e o que é preciso melhor. Tudo isso com um acompanhamento de um coach e estudante de psicologia.
+
+Gravação da aula:
+https://drive.google.com/file/d/17AdXdncDHoNj4E9B0dg2bS4Z8BtL2ZLS/view?usp=sharing
+
+
 
 
 
