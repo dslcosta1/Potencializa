@@ -23,8 +23,22 @@ https://forms.gle/kVGa4tjGzBXXYBEGA
 
 **Aula 17/04** - Oficina sobre autoconhecimento - conversamos com os jovens sobre sonhos e futuro, com um olhar voltado para dentro. Foi uma aula onde os alunos tentaram perceber o que eles gostam de fazer, em que eles são bons e o que é preciso melhor. Tudo isso com um acompanhamento de um coach e estudante de psicologia.
 
-Gravação da aula:
+Gravação da aula: 
+
 https://drive.google.com/file/d/17AdXdncDHoNj4E9B0dg2bS4Z8BtL2ZLS/view?usp=sharing
+
+Formulário de Feedback:
+https://forms.gle/bRykouffDRTj7Xkg6
+
+**Aula 24/04** - Oficina de comunicação verbal - os jovens foram expostos a diferentes conceitos que tornam a comunição mais eficaz. Por meio de dinâmicas e exemplos procuramos inspirar o jovem a se desenvolver pela leitura, escuta ativa e prática diária.
+
+Gravação da aula:
+
+https://drive.google.com/file/d/1P4f3ptFh9e37rMkfZmYpvTymVCSQmxcd/view?usp=sharing
+
+Formulário de Feedback:
+https://forms.gle/tkdRGs4whPtWGhzo7
+
 
 
 
