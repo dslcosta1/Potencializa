@@ -39,9 +39,23 @@ https://drive.google.com/file/d/1P4f3ptFh9e37rMkfZmYpvTymVCSQmxcd/view?usp=shari
 Formulário de Feedback:
 https://forms.gle/tkdRGs4whPtWGhzo7
 
+**Aula 01/05** - Oficina de comunicação não verbal - Foram apresetados conceitos relacionados a comunicação não verbal. Como os gestos, o tom de voz e as expressões faciais podem influenciar no conteúdo ques está sendo passado. Tivemos como convidade o Ator Gustavo Menezes que falou um pouco mais sobre a importância dessa comunicação.
+
+Gravação da aula:
+
+https://drive.google.com/file/d/13TsxQ8KnpFGDOk_BnANg2WXX_3gpnmUa/view?usp=sharing
 
 
+Formulário de Feedback:
+https://forms.gle/LAF79ibHyqjUPw8SA
 
 
+**Aula 08/05** - Oficina de Processo Seletivo - A oficineira convidada Thaís que atua como profissional de RH, passou dicas para os jovens de como organizar um bom currículo e mandar bem na entrevista de emprego. 
 
+Gravação da aula:
+
+https://drive.google.com/file/d/1TkjYcjWpNFUFBMu7W369gSNxshA-daUK/view?usp=sharing
+
+Formulário de Feedback:
+https://forms.gle/6ymXt8NsAp7sQPMD9
 
