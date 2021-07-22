@@ -59,3 +59,16 @@ https://drive.google.com/file/d/1TkjYcjWpNFUFBMu7W369gSNxshA-daUK/view?usp=shari
 Formulário de Feedback:
 https://forms.gle/6ymXt8NsAp7sQPMD9
 
+
+
+**Aula 15/05** - Oficina de Social Midia - A oficineira convidada Ana que atua como social midia, passou dicas para os jovens de como interagir de maneira saudável com as redes sociais, a fim de criar uma rede e divulgar seu trabalho.
+
+Infelizmeste por porblemas técnicos a gravação da aula foi perdida, mas temos o registro em foto do encontro:
+
+
+
+Formulário de Feedback:
+https://forms.gle/6ymXt8NsAp7sQPMD9
+
+
+
